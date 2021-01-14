@@ -1,7 +1,9 @@
 👋 
 
-Mostly 
-![Alt Text](https://media3.giphy.com/media/148y29SEJW0BXy/giphy.gif)
+Mostly I'm
 
-Sometimes
-![Alt Text](https://cdn.osxdaily.com/wp-content/uploads/2018/03/party-parrot-terminal.mov.gif)
+![running](https://media3.giphy.com/media/148y29SEJW0BXy/giphy.gif)
+
+But sometimes I also
+
+![do computers](https://i.imgur.com/ehzmrh3.gif)
