@@ -1,9 +1,9 @@
 👋 
 
-Mostly I'm
+Usually out
 
 ![running](https://media3.giphy.com/media/148y29SEJW0BXy/giphy.gif)
 
-But sometimes also
+Otherwise you can find me
 
-![working](https://thumbs.gfycat.com/BigheartedRealBobcat-max-1mb.gif)
+![working](https://media.giphy.com/media/13HgwGsXF0aiGY/giphy.gif)
