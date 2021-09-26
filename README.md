@@ -1,5 +1,3 @@
-👋 
-
 Either
 
 ![running](https://media3.giphy.com/media/148y29SEJW0BXy/giphy.gif)
